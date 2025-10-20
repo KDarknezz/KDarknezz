@@ -1,5 +1,5 @@
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=2500&color=CB54FF&center=true&vCenter=true&width=435&lines=Hi%2C+Im+Mashiro+(+KuroShiro+);Im+a+skill+Learner-;Feel+free+to+chat+with+me..." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2500&pause=2000&color=CB54FF&center=true&vCenter=true&width=435&lines=Hi%2C+Im+Mashiro+(+KuroShiro+);Im+a+skill+Learner-;Feel+free+to+chat+with+me..." alt="Typing SVG" /></a>
 </p>
 <p align="center">
  <img src="https://media1.tenor.com/m/8GRv4uCc3OsAAAAd/kyoro-kyouya.gif" height="400" width="400" alt="Gif" />
