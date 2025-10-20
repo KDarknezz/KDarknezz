@@ -23,7 +23,7 @@
 - Im still need to learn new skills
 - Learn, How to not breaking things
 - trying not to hurt others Feelings
-- try not to give up on life
+- try not to give up in life
 - wondering how to pass my exam.
 
 ---
