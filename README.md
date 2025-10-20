@@ -48,6 +48,6 @@
   <a href="https://www.twitch.tv/kdarknezz" target="_blank">
     <img alt="Twitch" src="https://img.shields.io/badge/Twitch-9146FF?style=for-the-badge&logo=twitch&logoColor=white"/>
 </p>
-<p align="center"><i>Let’s just Be Friends, alright!</i></p>
+<p align="center"><i>Let’s Be Friends, alright!</i></p>
 
 
