@@ -10,19 +10,21 @@
 ##  About Me
 
 - A student, with a passion for vtubers.
-- Always wondering "How can I find my True skill?"
+- Always wondering "Am i stupid?"
 - always on discord 24/7 (feel free to dm me)
 - love making friends and chatting
-- my quote "best life comes with a trade"
+- I can draw, coding, edit, cook and ets.
+- "best life comes with a trade"
 
 ---
 
 ##  Right Now
 
-- Im still Wants to learn new skills
-- Learning, How to not to break things
-- trying not to breaking others Feelings
+- Im still need to learn new skills
+- Learn, How to not breaking things
+- trying not to hurt others Feelings
 - try not to give up on life
+- wondering how to pass my exam.
 
 ---
 
