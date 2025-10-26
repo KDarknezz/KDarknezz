@@ -10,7 +10,7 @@
 ##  About Me
 
 - A student, with a passion for vtubers.
-- Always wondering "Am i stupid?"
+- Always questioning the thing i know
 - always on discord 24/7 (feel free to dm me)
 - love making friends and chatting
 - I can draw, coding, edit, cook and ets.
@@ -20,8 +20,9 @@
 
 ##  Right Now
 
-- Im still need to learn new skills
-- Learn, How to not breaking things
+- Im still need to learn new skills to find the one 
+i Truly love
+- Learning from past mistakes
 - trying not to hurt others Feelings
 - try not to give up in life
 - wondering how to pass my exam.
