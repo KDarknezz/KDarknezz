@@ -20,11 +20,8 @@
 
 ##  Right Now
 
-- Im still need to learn new skills to find the one 
-i Truly love
-- Learning from past mistakes
-- trying not to hurt others Feelings
-- try not to give up in life
+- Im in college taking diploma in Multimedia
+- Learning from the past mistakes
 - wondering how to pass my exam.
 
 ---
